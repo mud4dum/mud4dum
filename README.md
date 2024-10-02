@@ -1,0 +1,6 @@
+-  Hi, I’m @mud4dum
+-  I’m interested in anything
+-  I’m currently learning how to code properly and animating
+-  I’m looking to collaborate on something
+-  How to reach me  discord mud468
+-  Fun fact: i hate life and i do things on vitrual machines.
